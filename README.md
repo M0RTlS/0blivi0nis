@@ -1,4 +1,4 @@
-# Myriad-Eclipse
+
 <p align="center">
   To your flesh and blood, to the marrow of your bones ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>A puppet of love that becomes empty when inserted</ins>
 </p>
