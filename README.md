@@ -1,6 +1,6 @@
 # Myriad-Eclipse
 <p align="center">
-  STAY⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>FRIENDS?</ins>
+  To your flesh and blood, to the marrow of your bones ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>A puppet of love that becomes empty when inserted</ins>
 </p>
 
 <p align="center">
